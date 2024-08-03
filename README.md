@@ -1,4 +1,4 @@
-- 👋 find me at www.deadtomb.xyz
+- 👋 find me at www.azhang.eu.org
 - 👀 follow me on Youtube / Apple Music / Spotify
 - 🌱 as well as Bilibili / NetEase Music
 - 💞️ check my repos by clicking my profile ->
